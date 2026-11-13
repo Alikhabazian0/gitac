@@ -4,3 +4,4 @@ just doin it to be more productive. :)
 we should try more today
 this is the new beginning...
 I'm willing to handle so many things today :))
+i'm sick of this shit man.
